@@ -1,3 +1,0 @@
-# grupolema.github.io
-
-Texto
